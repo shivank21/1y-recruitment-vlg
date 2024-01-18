@@ -6,3 +6,4 @@
 ![011f62d3-9d8e-46a1-9f31-9718dc4875f5](https://github.com/shivank21/1y-recruitment-vlg/assets/128126577/ce0bbd03-aa22-4530-821d-f7aa9cd26944)
 ![image](https://github.com/shivank21/1y-recruitment-vlg/assets/128126577/74c4508d-f78f-4b44-a505-dd0532de5821)
 ![d1bd7c96-eea8-47e8-b963-321e1f41c40a](https://github.com/shivank21/1y-recruitment-vlg/assets/128126577/97f37e75-b00b-4add-b755-11b3ce83d654)
+<img width="114" alt="da3344a0-848c-490a-8ace-3faf0dc92aa0" src="https://github.com/shivank21/1y-recruitment-vlg/assets/128126577/fa7ec146-8504-4d60-ae5e-0eda93047e08">

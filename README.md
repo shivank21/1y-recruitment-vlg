@@ -14,3 +14,6 @@ vlg/assets/128126577/fa7ec146-8504-4d60-ae5e-0eda93047e08">
 ![Intro to nn 3b1b](https://github.com/shivank21/1y-recruitment-vlg/assets/128126577/0768e02a-48a9-425b-870d-b1fae4698f0c)
 
 ![QHp3hhv](https://github.com/shivank21/1y-recruitment-vlg/assets/128126577/096e9258-1ccd-45b2-bd71-cb633be83b0f)
+
+![image](https://github.com/shivank21/1y-recruitment-vlg/assets/128126577/523f4b03-ade3-4ecd-b09e-341f7130c86b)
+![image](https://github.com/shivank21/1y-recruitment-vlg/assets/128126577/8e553897-8fdd-4f62-b72b-21eef9bd1fa9)

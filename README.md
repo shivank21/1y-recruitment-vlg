@@ -1,4 +1,11 @@
 
+
+![Approach](https://github.com/shivank21/1y-recruitment-vlg/assets/128126577/4d634cd5-90c4-4e02-af50-22c15d9750a5)
+
+
+
+
+
 <img width="1062" alt="Detail dreeambooth" src="https://github.com/shivank21/1y-recruitment-vlg/assets/128126577/43cfdbf3-db6f-4bc7-b3f6-65d6245bf302">
 <img width="983" alt="oveerview" src="https://github.com/shivank21/1y-recruitment-vlg/assets/128126577/b0fbb4d6-c0e4-4d04-8f44-60b5accb18ce">
 ![Art rendition](https://github.com/shivank21/1y-recruitment-vlg/assets/128126577/e2dbd8a3-5386-4ffb-8435-257f04397782)
